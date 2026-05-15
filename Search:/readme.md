@@ -1,0 +1,2 @@
+- [free subdomain](https://www.google.com/search?q=free+subdomain)
+- [free subdomain hosting](https://www.google.com/search?q=free+subdomain+hosting)
